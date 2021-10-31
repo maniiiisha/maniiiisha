@@ -1,5 +1,7 @@
 ### [![Typing SVG](https://readme-typing-svg.herokuapp.com/?color=%23FFFFFF&lines=Hi,+I'm+Manisha!👋)](https://git.io/typing-svg)
-![alt-text](https://github.com/maniiiisha/maniiiisha/issues/1#issue-1040444588)
+   ![ezgif com-gif-maker](https://user-images.githubusercontent.com/63800003/139582350-4a1f0ef3-48df-4c15-8d38-1b16ed6a2b46.gif)
+
+
 <!--
 **maniiiisha/maniiiisha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
