@@ -1,7 +1,6 @@
 ### [![Typing SVG](https://readme-typing-svg.herokuapp.com/?color=%23FFFFFF&lines=Hi,+I'm+Manisha!👋)](https://git.io/typing-svg)
    ![ezgif com-gif-maker](https://user-images.githubusercontent.com/63800003/139582350-4a1f0ef3-48df-4c15-8d38-1b16ed6a2b46.gif)
 
-𝘐'𝘮 𝘤𝘶𝘳𝘳𝘦𝘯𝘵𝘭𝘺 𝘭𝘦𝘢𝘳𝘯𝘪𝘯𝘨 𝘢𝘯𝘥 𝘸𝘰𝘳𝘬𝘪𝘯𝘨 𝘰𝘯 𝘔𝘢𝘤𝘩𝘪𝘯𝘦 𝘓𝘦𝘢𝘳𝘯𝘪𝘯𝘨 𝘢𝘯𝘥 𝘋𝘢𝘵𝘢 𝘚𝘤𝘪𝘦𝘯𝘤𝘦!🚀
 <!--
 **maniiiisha/maniiiisha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
